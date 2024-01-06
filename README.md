@@ -13,10 +13,13 @@ CSS
 
 
 
-![Image](https://github.com/users/harmanbr/projects/1/assets/129810771/bc2b7cba-25c8-41fc-b401-b8026b012268)
+![image](https://github.com/harmanbr/gpt3_hsb/assets/129810771/98f3fb29-50a7-433b-a54c-168822ac3fc5)
 
 
-![Image](https://github.com/users/harmanbr/projects/1/assets/129810771/01fe6894-b0ec-493e-8c72-f47746d9d70c)
+
+![image](https://github.com/harmanbr/gpt3_hsb/assets/129810771/96584681-21e5-46f2-a56a-2375915fb952)
 
 
-![Image](https://github.com/users/harmanbr/projects/1/assets/129810771/cc48585e-b358-486b-a85a-4562148c6b86)
+
+![image](https://github.com/harmanbr/gpt3_hsb/assets/129810771/7e76f37a-4c0d-4985-bfc1-acc8c7e0d53f)
+
